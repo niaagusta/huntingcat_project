@@ -1,1 +1,0 @@
-# huntingcat_project
